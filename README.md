@@ -1,1 +1,1 @@
-# otonom_gidi-
+# otonom_gidiş
